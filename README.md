@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Web development AI/ML/DL**
 
-- 📫 How to reach me **khushu77top@gmail.com**
+- 📫 How to reach me **contentoffice1211@gmail.com**
 
 - ⚡ Fun fact **I am very Curious to learn or talk to new mind person**
 
